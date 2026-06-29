@@ -1,4 +1,4 @@
-# 
+# Léger pump.fun sniper bot modules complémentaires pour Mac OS | Personnalisé pump.fun sniper bot modules complémentaires pour PC Windows. Avec analyse des données historiques et exécution de bundles — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
